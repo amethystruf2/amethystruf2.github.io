@@ -1,0 +1,1 @@
+JustFall. LOL is not just a penguin game, it is a multiplayer game online with friends, where the players have as a skin a penguin, they compete in a hexagon to see who survives the longest time, and who becomes the winner of the 1v1 battle of our multiplayer game online.
